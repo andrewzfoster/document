@@ -26,8 +26,124 @@ As Zhou Mi, a senior research fellow at the Chinese Academy of International Tra
 
 
 
+#### Translation
+
+
+
+
+
 #### New Vocabulary
 
-- humid
+1. humid
 
-- 
+2. mugy
+
+3. sticks
+
+4. gleaming
+
+5. miniature
+
+6. pavilions
+
+7. fair
+
+8. held
+
+9. regional
+
+10. spans（多义词：扩张）
+
+11. delegations
+
+12. channeling
+
+13. lingered
+
+14. executives
+
+15. sprint
+
+16. marathon
+
+17. multinational
+
+18. firm
+
+19. demands
+
+20. stamina
+
+21. constant（容易混淆词 contant）
+
+22. adjustment
+
+23. underlined （多义词 强调 划线）
+
+24. phrase
+
+25. logistics
+
+26. entrepreneur
+
+27. firm
+
+28. shifting
+
+29. encounters
+
+30. mattered
+
+31. halls
+
+32. volunteering
+
+33. thrill
+
+34. pavilion
+
+35. drone
+
+36. referred
+
+37. hybrud
+
+38. two-metric-ton
+
+39. vertically
+
+40. cruise
+
+41. horizontally
+
+42. alongside
+
+43. emergling industries
+
+44. CIFIT
+
+45. principal
+
+46. KPMG
+
+47. breakthroughs
+
+48. blown away
+
+49. ceremony
+
+50. quieter
+
+51. fellow
+
+52. predictable
+
+53. stability
+
+54. essential
+
+55. uncertainty
+
+
+
+#### Grammar
