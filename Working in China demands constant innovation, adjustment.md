@@ -24,13 +24,7 @@ By the closing ceremony, the applause for the contract figures felt almost routi
 
 As Zhou Mi, a senior research fellow at the Chinese Academy of International Trade and Economic Cooperation, put it, platforms like CIFIT are valuable because they give governments and companies "a chance to exchange views, build trust, and shape policies that make investment more predictable". That kind of stability, he said, is essential at a time of global uncertainty and rising protectionism.
 
-
-
 #### Translation
-
-
-
-
 
 #### New Vocabulary
 
@@ -143,7 +137,5 @@ As Zhou Mi, a senior research fellow at the Chinese Academy of International Tra
 54. essential
 
 55. uncertainty
-
-
 
 #### Grammar
